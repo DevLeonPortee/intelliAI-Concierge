@@ -34,4 +34,3 @@ For inquiries or collaboration opportunities, feel free to contact us at [admin@
 Reginald L. Portee, 
 
 [My Email](leon@porteeco.com), [My GitHub](https://github.com/leonxpx), [My LinkedIn](https://www.linkedin.com/in/leon-9b33912b4);
-
